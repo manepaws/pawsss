@@ -7,7 +7,7 @@
  
 <img src="https://u.cubeupload.com/Dagasi/NewProject10A883E431.gif" width="450">
 
-<img src="https://u.cubeupload.com/Dagasi/NewProject12ACFE5B9.gif" width="80"> ᵒʳ ㅤ𓈒 ***f***eiㅤㅤ ${\textsf{\color{#EEC1CA}8𝘸7}}$ㅤㅤㅤ ${\textsf{\color{#F3EEEE}𝗻𝗼}}$ ${\textsf{\color{#F2D7CB}DNI}}$
+<img src="https://u.cubeupload.com/Dagasi/NewProject12ACFE5B9.gif" width="80"> ᵒʳ ㅤ𓈒 ***f***eiㅤㅤ ${\textsf{\color{#EEC1CA}8𝘸7}}$ㅤㅤ<img src="https://u.cubeupload.com/Dagasi/tumblr23167956816f09.gif" width="30">ㅤ ${\textsf{\color{#F3EEEE}𝗻𝗼}}$ ${\textsf{\color{#F2D7CB}DNI}}$
 
 <img src="https://u.cubeupload.com/Dagasi/tumblr4e62b5526a8e1c.gif" width="30">
 
