@@ -7,9 +7,9 @@
  
 <img src="https://u.cubeupload.com/Dagasi/NewProject10A883E431.gif" width="450">
 
-<img src="https://u.cubeupload.com/Dagasi/NewProject12ACFE5B9.gif" width="80"> ᵒʳ ㅤ𓈒 ***f***eiㅤㅤㅤ8w7ㅤno DNI
+<img src="https://u.cubeupload.com/Dagasi/NewProject12ACFE5B9.gif" width="80"> ᵒʳ ㅤ𓈒 ***f***eiㅤㅤ ${\textsf{\color{#EEC1CA}8𝘸7}}$ㅤㅤㅤ ${\textsf{\color{#F3EEEE}𝗻𝗼}}$ ${\textsf{\color{#F2D7CB}DNI}}$
 
 <img src="https://u.cubeupload.com/Dagasi/tumblr4e62b5526a8e1c.gif" width="30">
 
 <a href="https://wfs.atabook.org">
-<img src="https://u.cubeupload.com/Dagasi/NewProject1016240A5.gif" width="100"> </a>
+<img src="https://u.cubeupload.com/Dagasi/NewProject1016240A5.gif" width="200"> </a>
