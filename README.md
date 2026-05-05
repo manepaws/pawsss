@@ -7,7 +7,7 @@
 <img src="https://u.cubeupload.com/Dagasi/NewProject14EFCDFF2.gif" width="450">
 
 
-<img src="https://u.cubeupload.com/Dagasi/NewProject186DF32D7.gif" width="70"> ᵒʳ vewn . **WIP**
+<img src="https://u.cubeupload.com/Dagasi/NewProject186DF32D7.gif" width="80"> ᵒʳ vewn . **WIP**
 
 
 <a href="https://pronouns.cc/childish">
