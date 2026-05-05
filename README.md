@@ -2,7 +2,7 @@
 
 <div align="center">
  
-<a href="https://hits.sh/github.com/5poke/"><img alt="Hits" src="https://hits.sh/github.com/5poke.svg?style=flat-square&label=%E3%82%9B%E3%85%A4kisses%E3%85%A4&extraCount=26501&color=ffffff&labelColor=0D1017"/></a> ㅤ݂ ︶  <a href="https://hits.sh/github.com/5poke/"><img alt="Hits" src="https://hits.sh/github.com/5poke.svg?style=flat-square&label=%E3%85%A4%E2%99%A1%20%F0%93%88%92%E3%85%A4&extraCount=1265901&color=ffffff&labelColor=0D1017"/></a>
+<a href="https://hits.sh/github.com/5poke/"><img alt="Hits" src="https://hits.sh/github.com/5poke.svg?style=flat-square&label=%E3%82%9B%E3%85%A4kisses%E3%85%A4&extraCount=26501&color=ffffff&labelColor=0D1017"/></a> ㅤㅤ  <a href="https://hits.sh/github.com/5poke/"><img alt="Hits" src="https://hits.sh/github.com/5poke.svg?style=flat-square&label=%E3%85%A4%E2%99%A1%20%F0%93%88%92%E3%85%A4&extraCount=1265901&color=ffffff&labelColor=0D1017"/></a>
  
 <img src="https://u.cubeupload.com/Dagasi/NewProject14EFCDFF2.gif" width="450">
 
