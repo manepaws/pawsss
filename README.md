@@ -1,7 +1,9 @@
 <!-- boohoo — copy over here!-->
 
 <div align="center">
- 
+
+ㅤㅤ<img src="https://hits.sh/github.com/5poke.svg?style=flat-square&label=%E2%98%86%E3%85%A4.&extraCount=1006502&color=0D1017&labelColor=0D1017" width="130">
+
 <img src="https://file.garden/aeWblX8drAn4J6VK/wemmbu.gif" width="450">
 
 **fei** or tai. ㅤwork in progress, might decorate it later
