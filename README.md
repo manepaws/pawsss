@@ -1,12 +1,11 @@
-<!-- boohoo — copy over here!-->
+<!-- if you copy or fork this without permission I will give you a kiss, a GAY kiss. But I won't do that neither because I love my husband so much and I will NEVER cheat on him with a failure loser like you (yap, yap, yap) . ٭ -->
 
 <div align="center">
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Henny+Penny&letterSpacing=0.18rem&duration=2400&pause=500&color=FFF1F6&center=true&vCenter=true&width=435&lines=You're+gonna+get+that+treasure;Maybe+tasting+me%2C+Dev+%E2%99%A1" alt="Typing SVG" /></a>
 
 <img src="https://file.garden/aeWblX8drAn4J6VK/bg4.gif" width="411">
 
-fei / xiang. pls dni if you're jinna. you're acting weird with me. 
+<img src="https://file.garden/aeWblX8drAn4J6VK/15.png" width="42">ㅤᵒʳ ***x***iang ㅤㅤ(ˢ)*h*eㅤ**⚣**
 
 ㅤㅤ<a href="https://fly.atabook.org">
 <img src="https://file.garden/aeWblX8drAn4J6VK/12.gif" width="100"> </a>
